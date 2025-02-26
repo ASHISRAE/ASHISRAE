@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ASHISRAE
+- 👋 Hi, I’m @Israe_Nabalssi
 - 👀 I’m interested in LEARNING NEW THINGS
 - 🌱 I’m currently learning SOME PROGRAMING LANGUAGES & OTHER STUFF
 - 💞️ I’m looking to collaborate on INTERESTING WORK
